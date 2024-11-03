@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sonalisingh30112001@gmail.com**
 
-- 📄 Know about my experiences [Resume ](https://drive.google.com/file/d/1sdcR1ILBwuItv7kEcs-HvTgiK0-3qWho/view?usp=sharing)
+- 📄 Know about my experiences [Resume ](https://drive.google.com/file/d/144qiESaYUkYDSQK_o8pFceJZ-kM4JmcM/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
